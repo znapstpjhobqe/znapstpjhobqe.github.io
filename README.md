@@ -1,1 +1,0 @@
-# znapstpjhobqe.github.io
